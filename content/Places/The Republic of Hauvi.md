@@ -1,0 +1,3 @@
+Hauvi is a republic located in the continent of [[Bivou'ra]], east of [[The Kingdom of Bivoulla|Bivoulla]] and northeast of [[The Chiefdom of Ilkon|Ilkon]]. The capital of Hauvi is [[Re'Lot]], which is located in the eastern most part of mainland Hauvi. There are two major islands in Hauvi's reign, blank island to the east, and blank island to the southeast. 
+
+The majority of Hauvi's mainland is a mix of marshland and swamp, filled with mangrove fields and sparse forests. The coastline of Hauvi shifts into sandy, shallow coasts and tall dunes, with east island having beautiful beaches and tropical climate. ![[hauvi-map.png]]

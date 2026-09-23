@@ -1,0 +1,13 @@
+The continent of Bivou'ra is the most northwestern continent within the Isles of Sanctuary, situated north of [[Efox]] and west of [[Vuarscrya]]. It is also the largest continent within the Isles of Sanctuary in area, with a total just over 1,062,000*(could be smaller) square miles. 
+
+### History
+##### The Century of Wars
+The continent used to be one united nation under the same name, but several factions of revolutionaries rose up against the Bivou'ran government around 650, kickstarting the **Century of Wars**. With dozens of parties involved, with several joining or abandoning the war as decades passed. In 756, the **Century of Wars** ended with the continent split into three distinct countries: [[The Kingdom of Bivoulla|Bivoulla]], [[The Republic of Hauvi|Hauvi]], and [[The Chiefdom of Ilkon|Ilkon]]. 
+##### The 167-Year War
+These countries existed amicably for a while, but as some parties wished to move on from the damages of the war, others pursued "forgotten reparations" and "rightful territory." Tensions rose across all three countries and eventually exploded in 869, when another continental war broke out; one that would later become known as [[The 167-Year War]].
+
+About a century into the war, Bivoulla's royalty had withdrawn most of their forces from the conflict, and by the turn of the millennium was acting as an intermediary. In 1035, Bivoulla's royalty reconciled a truce between Hauvi and Ilkon by offering the young princess [[Zariah Ra'Solvak]] in marriage to Ilkon's prince, and offering her tiara to Hauvi as a gesture of peace on behalf of Ilkon. Having exhausted their people, resources, and economies in the war, both Hauvi and Ilkon agreed to the truce. Relations had never been better between the countries of Bivou'ra, and both Hauvi and Ilkon came to recognize themselves as protectorates of Bivoulla.
+### Geography
+The basic geography of Bivou'ra is strikingly symmetrical along an axis that stretches between the northwest and southeast, but is otherwise quite diverse in its climates and ecosystems. The continent has extensive and grand mountain ranges that are all volcanically active, mostly within Bivoulla and Ilkon.
+##### Bodies of Water
+Within Bivou'ra are immense bodies of water that connect into the greater ocean around Sanctuary. Most notably is the aptly named Shared Sea which all three countries have coastlines on. Bivoulla and Ilkon in particular also have coasts on the Shared Sea's Silvereye Bay. Within Hauvi is the Savorite Gulf, separated into the north and southern sections. In Ilkon, there is the Bay of Bask that separate the [[Daughter Island|Daughter]] and [[Son Island|Son Islands]].

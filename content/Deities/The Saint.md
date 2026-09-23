@@ -1,0 +1,17 @@
+The Saint is an autogenous being that spawned from The Lantern of [[Efox]] after [[The Lanterns of Sanctuary]] were targeted for destruction by [[The Casualty (Malthu)|Malthu]]. She was powerful enough to be considered a Goddess, and expended her lifespan to protect [[The Isles of Sancturn|Sanctuary]] from late 1062 until mid 1087. The light emitted from her Lantern was visible from all across Sanctuary, even in daylight. 
+### Genesis
+The Lantern of Efox was found and captured by [[Entrua Inc.]], along with [[The Mementome]]. As it was travelling by train across Efox, a stowaway came across it in a storage car. It was then the Lantern completely possessed the young girl, consuming her soul in the process. The entirety of not only the Lantern's power, but its knowledge and arcane affinity, was entirely embedded in this child's body. With one single purpose in mind, this being called herself The Saint. 
+
+A group of mercenaries gathered by [[Camille Chivaloux]] boarded the train in hopes of obtaining both relics, and coincidentally came across The Saint. Seeing as these components would be better moved through their hands compared to the hands of this newly founded corporation, The Saint did not interfere.
+### Creation of Her Lantern
+Once she had made her way to [[The College of Apallyon]], she gathered the leaders of the college, and by association, [[The Makevens]]. Precalculated, she described and drew instructions on a new Lantern, and asked that the greatest minds be put to the task. The College obliged, and saw to the construction immediately with the [[Nazcalt|nazcalt]] recovered from both the Lantern of [[Vuarscrya]] and the Lantern of Efox. 
+
+With all of these calculations at hand, [[Karmagen]] asked what would power the Lantern, and she confirmed to him that she would be the source of power for the Lantern. He didn't press further, but did ask how long she could possibly power it. Before he could finish his question, she answered, "Just about twenty-five years, give or take a couple months. That is how much spare time I can gift to your people. You should use that time to prepare the next generation, for there is a war coming."
+### Mobilization and Activation
+After the week it took to construct her Lantern, The Makevens were able to convince the [[King Weston Somerset|King of Apallyon]] at the time to loan a [[Cloudsail|cloudsail]] to them in order to position The Saint's Lantern correctly. They were successful in this endeavor, as the argument was quite clear. 
+
+Over the course of ten days, The Makevens travelled to the center of Sanctuary, and defeated [[The Casualty (Malthu)|The Casualty]], which attempted to thwart their efforts. The Saint entered the Lantern, and activated it, several thousand feet above the sea.
+### Legacy and Death
+Over the next twenty-five years, many followers of The Saint appeared, as word began to spread of the apocalypse that is meant to come. As she watched over Sanctuary, she would appear to those she believed could play a role within the coming war, asking them for their help. 
+
+On Brosca 44th of 1087, The Saint's body has given all it could, and her power had been completely drained. She passed away early in the morning, as her and the Lantern fell into the ocean. When she passed, the sky of Sanctuary was released of its yellow hue, and the rest of [[Talthen]] was extricated from their blood red sky, as the entirety of the world returned to its long lost natural blue sky.

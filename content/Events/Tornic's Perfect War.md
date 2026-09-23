@@ -1,0 +1,3 @@
+Tornic's Perfect War was a civil war in [[Republic of Ravalon]] that began in mid 1062, lasting until early 1066. There were an estimated 120,000 casualties in the war, including Warforged and [[Mineforged]] populations, as a vast majority of the war's casualties were of the side of the rebellion.
+
+The name was coined in 1077 by [[Lanya Rowe]], supposedly while in conversation about the topic with [[Broncho Lentway]], and was often used thereafter officially in lectures by [[The College of Apallyon]]. 

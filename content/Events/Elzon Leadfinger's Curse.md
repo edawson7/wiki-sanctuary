@@ -1,0 +1,3 @@
+Elzon Leadfinger's Curse was a necromantical phenomena that occurred in 1062 and was resolved by [[The Makevens]]. The curse manifested as a tall, glowing red wall that originated in [[Rolsa, Ausonate|Rolsa]], spanning the distance to [[Sorala Central]]. This wall, although inherently harmless, destroyed structures that blocked its path when it first appeared, and summoned undead creatures around it, indiscriminately attacking anything nearby. 
+### Breaking the Curse
+The Makevens were able to break Elzon Leadfinger's Curse by locating his body in Sorala Central, subduing his self-possessed corpse, and returning it to the Hailsoul Castle in Rolsa. By putting the late king's body in the family crypt, the curse was broken.

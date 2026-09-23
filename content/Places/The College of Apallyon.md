@@ -1,0 +1,1 @@
+The College of Apallyon is a prestigious academy in [[The Kingdom of Apallyon|Apallyon]] that focuses on the education of arcane arts. 

@@ -1,0 +1,7 @@
+An Incursion is a rare and catastrophic magical phenomenon in which the boundary between realities is temporarily breached, allowing creatures and objects from alternate worlds to enter our reality. Outside of the effects of an Incursion, there are no signs that it has happened, except to those who either initiated it or witnessed the initiation of it.
+
+Incursions are typically brief. Once the breach closes, further crossings become impossible, leaving any Alternates already present stranded within the affected reality. 
+### Alternates and Collision
+Those who cross over during an Incursion are often referred to as Alternates, as they always resemble existing people, creatures, or objects within the affected world. An Alternate may be nearly identical to its counterpart, or may exhibit variance due to the divergent history of its originating reality.
+
+The presence of an Alternate is not inherently dangerous. However, when an Alternate approaches the corresponding person or object from the native reality, a phenomenon known as *Collision* may occur. The two corresponding entities are drawn violently toward one another, and upon contact, both are completely erased from existence. The exact mechanism is unknown, though many scholars theorize that reality itself is attempting to resolve the contradiction created by two versions of the same entity occupying the same world.

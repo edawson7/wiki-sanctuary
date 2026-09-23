@@ -1,0 +1,1 @@
+King Weston Somerset, born 1032, was the king of [[The Kingdom of Apallyon|Apallyon]] from 1058 until his untimely death in 1081. Since he bore no children, his nephew, [[King Huvon Somerset|Huvon Somerset]], took the throne the same year he passed.

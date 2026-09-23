@@ -1,0 +1,9 @@
+The Rightful Valor was a group of four individuals, created and led by [[The Casualty (Malthu)|Malthu]] in 1053. Malthu recruited those with a great sense of retribution, following an MO of getting back at those who wronged you. The group was disbanded in 1062 preceding Malthu's reveal as The Casualty, and her opportune death.
+### Members
+The first recruited member by Malthu was [[Aercasa]], which established the creation of the group in 1053. Unbeknownst to Aercasa, the manipulation of her sense of valor was pre-orchestrated by Feynaria in works with Malthu. 
+
+In 1057, Malthu heard word about a crazed man in [[The Kingdom of Apallyon|Apallyon]] that burnt an entire village down and was held on arrest in [[Avalon]], as he was threatening to take care of [[The Kingdom of Ausonate|Ausonate]] next. When he arrived, Malthu paid his bail, spoke in public to hundreds about the failure of society. Malthu then recruited the man, who called himself [[Artsek Hedrec|Arthur Hedrec]]. 
+
+On a political tour in [[Predoryia]] trying to garner political following, Malthu met a sort of nomad that resonated with his message. Despite Malthu's best attempts, she would not tell him anything more than her alias, that being '[[Zariah Ra'Solvak|Z]]'. She officially joined the group in the spring of 1062.
+### Activities and Operations
+After they destroyed [[Vuarscrya]]'s Lantern, Aercasa saved Malthu and herself from the consequences that come with the destruction of a Lantern. Being the only two left in The Rightful Valor, they dropped the name, and moved much more discreetly, avoiding any public. Feynaria warned the two about the phenomenon that occurred in Vuarscrya after the destruction of the Lantern, which would later be called [[The Vuarscryan Incursion]].

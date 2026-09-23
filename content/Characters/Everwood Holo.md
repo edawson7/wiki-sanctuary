@@ -1,0 +1,1 @@
+Everwood Holo, born 1012, is an influential figure at [[The College of Apallyon]]. He joined the college in 1038.

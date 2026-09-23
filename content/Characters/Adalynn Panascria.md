@@ -1,0 +1,16 @@
+Adalynn Panascira was a member of [[The Makevens]], a saint in the Church of [[Arenica]], and a co-founder of the [[Caretakers and Investigators of Sanctuary]].
+### Early Life
+Adalynn's conception was one without love, and against her mother's will. When her mother, [[Oralla Panascira]], gave birth to her on Eilsca 58th, 1041, she knew that Adalynn may be in danger around her, at least in the beginning. After Panascira had named her child, being **Sonomi Madeline Panascira**, she had asked an old friend of hers, Raiine Rowe, to raise her child. Rowe gladly accepted the task, and raised Sonomi alongside her own daughter, [[Lanya Rowe]]. The two experienced most of her child in the small village of [[Rowehallow]], located in the mid-south of [[The Kingdom of Ausonate|Ausonate]].
+Once Sonomi turned six, she was easily able to cast simple spells she had learned in whatever books she could get a hold of. That's when Raiine Rowe thought it would be best to send her to [[The College of Apallyon]]. When Panascira met Sonomi for the first time in six years, she balled, and embraced her daughter. After realizing that she had exposed Sonomi to the truth of her origin, she contacted Professor [[Ardwenn Yohrn]], asking him to help in this moment. Sonomi's memories were erased from her mind, as she was told her name was Adalynn. 
+### Life as a Makeven
+#### Becoming a Makeven
+When Adalynn was 21, she and been tasked by The College of Apallyon to investigate a revolt that occurred in [[Rolsa, Ausonate|the capital of Ausonate]]. Sent with a cohort from the college, Dante, adventured to Rolsa and fatefully met the rest of [[The Makevens]]. 
+### Life After Being a Makeven
+#### Creation of the CIS
+With the help of Dasterian Cahral, the two founded the [[Caretakers and Investigators of Sanctuary]] (CIS), founded to help further protect and plan for the future of the Isles of Sanctuary.
+#### Personal Life
+Adalynn and Dasterian married in the years after their victory over The Casualty, and had several children. The two, retaining their last names after marriage, opted to give their sons Dasterian's surname, and their daughter's Adalynn's surname. In order of oldest to youngest, the children are as follows: Dane Cahral (born Weslca 3rd, 1065), Phoebe Panascira (born Varsca 28th, 1067), Aris Panascira (born Eislca 56th, 1068), Tirich Cahral (born Dresca 1st, 1069), and Dasterian Cahral Jr. (born Brosca 54th, 1073). 
+
+In 1075, when Adalynn was 33 years old, she was informed that [[Sir Captain Teeny Petal]] had passed. Accompanied by her two eldest children, Dane and Phoebe, she travelled to [[Kalvera (The Feywild)|Kalvera]] and attended his funeral. During the service, Adalynn was reminded of a vision she had while on death's door in the fight against The Casualty, one of both her late mother and her first familiar. Although her life as a parents kept her mind occupied, she remembered how they told her that they are waiting for her. A few weeks later, on the 53rd of Varsca, Adalynn had succumbed to a fever and passed away. Her funeral was held in [[Sorala Central]], as that was the greatest hub for worshippers of Arenica. 
+
+About five years after Adalynn's death, Raiine Rowe had passed away as well. 

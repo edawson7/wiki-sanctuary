@@ -1,0 +1,15 @@
+The Casualty, named Malthu, was a homunculus created using both [[Texiontal]] and [[Selance Alkoth]]’s DNA in hopes of creating a perfect body for Texiontal to transfer to.
+### Early Life
+Malthu was born to one of Texiontal's wives, Olga, as she was the chosen surrogate. She carried the Malthu for six months, and she was born in 1033 as a tiefling-orcish child. She never cried, and was never given a name. 
+Texiontal was livid that the child was a girl, but conceded when Selance Alkoth explained that out of all the variables they controlled, not being able to control that was the least of their worries. 
+The child was never given a name, and was very attentive to her surroundings. Within a few months, she learned to speak without being explicitly taught. When she was five months old, she named herself ‘Malthu’.
+She was quick to learn, and left alone often, albeit heavily guarded. While in solitude, she would often speak to herself, as if speaking to a mentor, as if someone was speaking to her. 
+### The Fusion of Malthu and Texiontal
+In 1049, Selance Alkoth and Texiontal began preparing for the ritual. Texiontal, now in his late sixties, was ready for his new, eternal body. When guards were sent to retrieve Malthu from her cell and bring her to the ritual, she did not hesitate for a second. The Orcish elder mage that was meant to conduct the ritual had passed mysteriously the previous day, so Texiontal demanded Selance Alkoth to conduct the ritual. Begrudgingly, he agreed. Alkoth’s magical prowess was immense, but this spell was one that he had never practiced. 
+As the ritual commenced, Alkoth casted the spell, Everknow’s Complete Fusion, aiming to merge Texiontal and Malthu into one.
+As their bodies merged, and their minds made contact in a spiritual realm, Texiontal’s consciousness was hit with a force he hadn’t expected to meet. Malthu’s resolve in this moment was unrelenting, as she claimed dominance over the new body’s autonomy. Ill-prepared for this, as he didn’t expect any resistance, Texiontal’s soul attempted to combat this, but his resolve was one of desperation, and was evidently futile, as his soul was consumed in the fight of mental fortitude. 
+As the ritual ended, and the combined body dropped to the ground, it landed and looked around, testing its new motor functions. Then, it said, “I am The Casualty, rightful heir to all authority in Sanctuary.” Malthu’s body had become shroud in a tough, Orcish shell, and her mind had ascended even further after absorbing Texiontal’s. 
+### The Rightful Valor
+Within the next year, Malthu had created an organization called [[The Rightful Valor]], recruiting [[Aercasa]], [[Artsek Hedrec|Arthur Hedrec]], and [[Zariah Ra'Solvak|Z]] in that order. 
+### Demise
+Malthu was killed by [[Karmagen]], part of [[The Makevens]], on Dresca 42nd, 1062. Karmagen decapitated her, and her head fell from the sky, landing in the center of the ocean that separates the continents of Sanctuary. 

@@ -1,0 +1,1 @@
+King Huvon Somerset, born 1049, took the [[The Kingdom of Apallyon|Apallyon]] throne in 1081 after his uncle [[King Weston Somerset|Weston Somerset]] passed away. He is often referred to as the youngest Elven king in known history.

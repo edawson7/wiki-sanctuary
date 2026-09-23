@@ -1,0 +1,1 @@
+The Caretakers and Investigators of Sanctuary (CIS) is an agency tasked with the extensive protection of Sanctuary as a whole. The CIS is headquartered in [[Avalon|Avalon, Apallyon]], and is funded by The [[The Kingdom of Apallyon]], The [[The Kingdom of Ausonate]], and the [[Republic of Ravalon]].

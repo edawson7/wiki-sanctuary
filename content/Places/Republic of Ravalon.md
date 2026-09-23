@@ -1,0 +1,1 @@
+The Republic of Ravalon is a country within the continent of [[Vuarscrya]]. It resides just south of [[The Kingdom of Ausonate|Ausonate]], and similarly to its neighbor, does not share a land border with [[The Kingdom of Apallyon|Apallyon]].

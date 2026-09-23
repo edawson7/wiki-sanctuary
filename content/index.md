@@ -12,6 +12,11 @@ Welcome to the Sanctuary Wiki! The setting of **Sanctuary** is within the world 
 
 
 
-<div class="graph-container index-graph" data-cfg='{"drag":true,"zoom":true,"depth":-1,"scale":0.9,"repelForce":0.5,"centerForce":0.2,"linkDistance":40,"fontSize":0.6,"showTags":false,"focusOnHover":true,"enableRadial":false}'></div>
+### Relation Graph
 
---- unlisted: true ---
+<div class="graph-container index-graph" data-cfg='{"drag":true,"zoom":true,"depth":-1,"scale":0.9,"repelForce":0.8,"centerForce":0.2,"linkDistance":40,"fontSize":0.6,"showTags":false,"focusOnHover":true,"enableRadial":false}'></div>
+
+
+
+
+

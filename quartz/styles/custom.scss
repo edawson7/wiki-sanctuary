@@ -19,3 +19,26 @@ code, pre, pre * {
 :root[saved-theme="light"] {
   --lightgray: #c8c8c8 !important;
 }
+
+article a.internal,
+article a.external {
+  background: none !important;
+  padding: 0 !important;
+  text-decoration: underline !important;
+  text-underline-offset: 3px;
+}
+
+:root[saved-theme="dark"] article a.internal,
+:root[saved-theme="dark"] article a.external {
+  color: #8fd8ff !important;
+}
+
+:root[saved-theme="light"] article a.internal,
+:root[saved-theme="light"] article a.external {
+  color: #1a6fa8 !important;
+}
+
+article a.internal:hover,
+article a.external:hover {
+  opacity: 0.8;
+}

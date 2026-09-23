@@ -42,3 +42,12 @@ article a.internal:hover,
 article a.external:hover {
   opacity: 0.8;
 }
+
+.index-graph {
+  width: 100%;
+  height: 600px;
+  border: 1px solid var(--lightgray);
+  border-radius: 8px;
+  margin: 1.5rem 0;
+  overflow: hidden;
+}

@@ -2,9 +2,14 @@
 
 // put your custom CSS here!
 
-:root {
-  --headerFont: "Eczar", serif !important;
-  --bodyFont: "Eczar", serif !important;
+body, article, p, li, a, span, blockquote, table,
+h1, h2, h3, h4, h5, h6,
+.page-title, .article-title, .content-meta, .breadcrumb-container {
+  font-family: "Eczar", serif !important;
+}
+
+code, pre, pre * {
+  font-family: "IBM Plex Mono", monospace !important;
 }
 
 :root[saved-theme="dark"] {

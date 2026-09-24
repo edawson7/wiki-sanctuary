@@ -4,10 +4,11 @@ title: Sanctuary Wiki
 Welcome to the Sanctuary Wiki! The setting of **Sanctuary** is within the world of Talthen, where the campaigns *Crack in Sanctuary*, *Sanctuary: Beyond the Veil*, and *Corvak's Return* take place. A vast majority of this wiki is written from within the setting; containing only what the people of Talthen know, or could reasonably come to know.
 #### Campaigns
 - [[Crack in Sanctuary]] (Campaign 1)
-- [[Beyond the Veil|Sanctuary: Beyond the Veil]] (Campaign 2)
+- [[Sanctuary Beyond the Veil|Sanctuary: Beyond the Veil]] (Campaign 2)
 - [[Corvak's Return]] (Mini Campaign)
 #### Geography
 - [[Talthen|Talthen, the World]]
+- [[Taltyro|Taltyro, the Largest Continent]]
 - [[The Isles of Sancturn|Isles of Sancturn, aka Sanctuary]]
 
 

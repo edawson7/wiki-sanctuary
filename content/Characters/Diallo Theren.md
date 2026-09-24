@@ -1,0 +1,5 @@
+Diallo Theren, born on Eilsca 15th 968, is an Elven wizard and alumni of [[The College of Apallyon]]. Diallo was an active member of the Forces Against Calamity, and helped defeat [[The Calamity]]. 
+### Early Life
+Diallo was born to Elias and Sybille Theren, two High Elven alumni of the College of Apallyon; Elias studied archaeology, and Sybille studied arcane arts. Set to follow in their footsteps, Diallo enrolled and began learning the arcane arts himself in 1000. He was a star student, and was offered a place in an expedition to Kalvera by [[Everwood Holo|Professor Everwood Holo]] in 1043. He, and four other students ([[Elsa Jarrett]], [[Illona Von Wothian]], [[Avent Warlock]], and [[Broncho Lentway]]), were meant to visit [[Kalvera (The Feywild)|Kalvera]] over the course of one week which stood in place of a final exam. 
+### Time in Kalvera
+When the group was 

@@ -1,0 +1,9 @@
+Stephven Ezra is an anomalous being created during [[the Vuarscryan Incursion|the Vuarscryan Incursion]] who assisted both [[The Makevens]] and the Part2er's with their goals. He was married to Vey Ezra, and had ten children with her before his death in 1087.
+### Creation
+Stephven was originally an alias for [[Selance Alkoth]], first used in late 1062. As The Makevens first met with [[The Rightful Valor]] in [[Rolsa, Ausonate|Rolsa]], Selance Alkoth disguised himself as a young man working as a simple stablehand for the Hailsoul castle. When asked, he stated his name was Stephen/Steven, and when inquired upon whether it was spelt with a 'ph' or a 'v', he said "both". 
+
+When the Vuarscryan Incursion occurred, Selance Alkoth was spying on [[Artsek Hedrec|Arthur]] of the Rightful Valor, disguised as Stephven. Instead of summoning an alternate version of Selance Alkoth, the [[Incursion (Magical Phenomenon)|incursion]] created an alternate of Stephven, the superficial alias alone. Despite this, Selance Alkoth noticed that collision would be eminent if they got close. He quickly changed his appearances to look like Arthur and demanded a guard to imprison Stephven. 
+
+Stephven was born that day, and for the next two weeks would be forgotten about in that prison cell. He barely survived this time in undeserved penance through drinking melted snow that came through a barred window, and he was kept warm by the basic lantern light kept lit in the castle's dungeons. 
+
+In this state, Stephven was newly brought into this world, and only had basic knowledge of language and reasoning, like a normal person stripped of any memories or personality. Despite that, he prevailed for a reason unknown to him, as if there was an indomitable spirit inside of him. He often spent his time in the dungeon recalling superficial memories of family or friends, none of which he could name because they didn't exist. The strongest weight on his spirit was an odd, unmerited 

@@ -26,4 +26,11 @@ Allied with The Makevens, Artsek travelled to Ravalon with them in order to resc
 
 In Ravalon, Artsek was able to assist The Makevens with saving Z, as she had been tortured and maimed by interrogation efforts. Once she was secured, Artsek used his druidic magic to transport everyone back to Rolsa, where he took care of Z further
 
-Artsek heavily practiced healing magic as Z recovered from her time in Ravalon, eventually being able to regenerate the parts of her body that had been removed during her interrogation. For a week, he nursed her back to health, regenerated appendages and all. When she awoke, Artsek informed her of everything that has transpired, and she hugged him. She then began insist on taking care of herself, but didn’t mind his company. In this time of respite, Z had confided in Artsek, telling him the story of her past, including her name, Zariah. Artsek promised to keep her secrets for as long as she meant to keep them herself.
+Artsek heavily practiced healing magic as Z recovered from her time in Ravalon, eventually being able to regenerate the parts of her body that had been removed during her interrogation. For a week, he nursed her back to health, regenerated appendages and all. When she awoke, Artsek informed her of everything that has transpired, and she hugged him. She then began insist on taking care of herself, but didn’t mind his company. In this time of respite, Z had confided in Artsek, telling him the story of her past, including her name, Zariah. Artsek promised to keep her secrets for as long as she meant to keep them.
+### Marriage and Legacy
+Shortly after helping The Makevens destroy The Casualty, Artsek married Zariah, as they settled down in a house they built together in Bivoulla. Artsek’s druidic powers allowed him to easily travel to Apallyon where he would often check in with the [[Caretakers and Investigators of Sanctuary|CIS]], doing small jobs for Dasterian when available.
+
+In 1071, he and Zariah had a child, which he would name after his mother, [[Elevana Hedrec]]. The two decided that she may carry Artsek’s surname, as Zariah wished to step away from royalty, and did not wish such responsibilities on her children.
+
+### Obtaining the Arrow
+### Death

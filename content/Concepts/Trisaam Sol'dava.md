@@ -1,0 +1,7 @@
+Trisaam Sol'dava is a fey tradition that originated from [[The Court of The Sun]]. Comprised of duels in a fixed-pairing team match tournament, the game serves as a way for Great Faeries of [[Kalvera (The Feywild)|Kalvera]] to settle political or personal disputes. 
+
+Being a tradition from The Court of The Sun, most Trisaam Sol'dava are held there. [[Alba, the Great Faerie of The Sun]], regularly hosts the event in the Yudharanga, an enormous, beautiful sandstone brick arena. The Yudharanga can seat tens of thousands, and has been a place for grand spectacles in [[Kalvera (The Feywild)|Kalvera]] since prehistoric times.
+### Regulation
+Each participating party takes a distinct side on the dispute at hand, and delegate what transpires when one side wins. Then each party submits a number of warriors meant to fight for them, each side needing the same odd number of warriors. Most traditionally, three total warriors are chosen for each side, but events where five or seven warriors being chosen is not unheard of. Then, these warriors are paired with one from the opposing side, and duel. The side with the most victories from these duels win, and get their favored outcome.
+
+The duels themselves are traditionally to the death, although that is not always enforced. As there is an audience, duels that do not end in a death often end in jeers and boos from the audience, often ending in the decline of popularity in a warrior. Rarely, one of the parties involved will demand that the victor kills their opponent, or else they shall be killed and lose their victory.

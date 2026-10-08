@@ -1,0 +1,11 @@
+Cardinal Kaimana Kauhane, often shortened to Cardinal Kauhane, is the cardinal of [[Vahra]], meaning he is the highest authority in both the Church of Vahra and [[Predoryia]] as a continent.
+### Early Life
+Born in 1015, Kaimana Kauhane was raised by a wealthy Owlin family in the tall mountains of Predoryia Despite the theocratic culture of the tropical continent, Kauhane's family, along with the rest of the highborn of Predoryia, often believed themselves to be superior to the lizardfolk and tortles of the land below them. 
+
+One night when he was 37 years old, while traveling by air, Kauhane was struck by lightning from a sudden storm. He fell hundreds of feet, miraculously surviving when he landed in a jungle. To his surprise, a family of lizardfolk nursed him back to health. Over the course of a year in recovery, he celebrated their traditions, learned more about Vahra, and repaid the family as best he could. 
+
+Kauhane briefly returned to his family in an attempt to help change their ways, but was scoffed at instead. In their belief, the church of Vahra was massively corrupted and influenced by them, controlled by the aristocrats of Predoryia. Instead of feeling defeated or bitter, Kauhane took that rejection from his family as a clear sign for his next mission in life, and began to rise within the church of Vahra. 
+### Rise in the Church
+Almost as if the path to becoming Cardinal of the church was carved by Vahra herself, Kauhane rose to the position by 1056, as coincidences and favors pushed him further into the church, and allowed him to exercise his faith. As Cardinal, Kauhane quickly rid the church of corruption; not by dismissal and axing of those guilty, but by redeeming them and leading them through redemption, further solidifying their faith. 
+
+In early 1062, he was summoned by [[Ardwenn Yohrn]] as an effort to help [[Var Oprix|Var Oprix's]] disease. With days of prayer, Kauhane was able to learn that it was [[Soulrot|soulrot]], and it would take an act of the Gods to rid Oprix of the ailment. Kauhane was devastated that he could not help, and when Oprix passed away later the same year, he volunteered to be the funeral's officiant.

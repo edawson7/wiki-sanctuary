@@ -7,7 +7,7 @@ Once Sonomi turned six, she was easily able to cast simple spells she had learne
 When Adalynn was 21, she and been tasked by The College of Apallyon to investigate a revolt that occurred in [[Rolsa, Ausonate|the capital of Ausonate]]. Sent with a cohort from the college, Dante, adventured to Rolsa and fatefully met the rest of [[The Makevens]]. 
 ### Life After Being a Makeven
 #### Creation of the CIS
-With the help of Dasterian Cahral, the two founded the [[Caretakers and Investigators of Sanctuary]] (CIS), founded to help further protect and plan for the future of the Isles of Sanctuary.
+With the help of Dasterian Cahral, the two founded the [[Caretakers and Investigators of Sanctuary|Caretakers and Investigators of Sanctuary (CIS)]], founded to help further protect and plan for the future of the Isles of Sanctuary.
 #### Personal Life
 Adalynn and Dasterian married in the years after their victory over The Casualty, and had several children. The two, retaining their last names after marriage, opted to give their sons Dasterian's surname, and their daughter's Adalynn's surname. In order of oldest to youngest, the children are as follows: Dane Cahral (born Weslca 3rd, 1065), Phoebe Panascira (born Varsca 28th, 1067), Aris Panascira (born Eislca 56th, 1068), Tirich Cahral (born Dresca 1st, 1069), and Dasterian Cahral Jr. (born Brosca 54th, 1073). 
 
